@@ -4,9 +4,10 @@
 
 ## ***Contacts:***
 
-* Discord: mgalya24;
+* Discord: @mgalya24;
 * E-mail: galya.minkkova@mail.ru;
 * Tel: +375(25)773-39-80
+* Telegram: @mgalya24.
 
 ## ***About myself:***
 
@@ -38,4 +39,4 @@ Accountant at AktivAccount LLC from 2021 to the present
 
 ## ***Education and courses:***
 
-English level - B1
+English level - B1.
