@@ -4,10 +4,10 @@
 
 ## ***Contacts:***
 
-* Discord: @mgalya24;
-* E-mail: galya.minkkova@mail.ru;
-* Tel: +375(25)773-39-80
-* Telegram: @mgalya24.
+* **Discord:** @mgalya24;
+* **E-mail:** galya.minkkova@mail.ru;
+* **Tel:** +375(25)773-39-80
+* **Telegram:** @mgalya24.
 
 ## ***About myself:***
 
